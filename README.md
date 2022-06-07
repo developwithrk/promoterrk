@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @promoterrk
+- 👋 Hi, I’m RK
 - 👀 I’m interested in App devloping and making something new.
 - 🌱 I’m currently learning Data Structure...
 - 📫 How to reach me:- widechats@gmail.com or rkinstyleinc@gmail.com
